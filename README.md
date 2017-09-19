@@ -1,2 +1,2 @@
-# Clash-of-Clans-Remake
+# Conquer
 Please take a moment to look at screenshots of the game.
